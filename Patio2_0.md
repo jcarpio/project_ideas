@@ -6,4 +6,6 @@ Anne Wilson Schaef en su libro "Vivir en proceso", 1998 habla de la importancia 
 
 ¿Y si esa falta de conexión de la que habla este indígena sea el origen de muchas de nuestras inseguridades? ¿Y si esa insatisfacción fuese el origen de la búsqueda constante de la felicidad?
 
-Durante mucho tiempo esta idea de comunidad ha estado presente en mi. He buscado esa comunidad en diferentes lugares. 
+Durante mucho tiempo esta idea de comunidad ha estado presente en mi. He buscado esa comunidad en diferentes lugares.
+
+
